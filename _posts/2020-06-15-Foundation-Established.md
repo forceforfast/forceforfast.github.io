@@ -12,5 +12,5 @@ The ForceForFast Foundation is a non-profit organization that works to support a
 
 The  ForceForFast Foundation has no political or religious attributes. 
 
-For more detailed information on the Foundation, please refer to official website@ www. ForceForFast.com. 
+For more detailed information on the Foundation, please refer to official website-- https://ForceForFast.com. 
 
