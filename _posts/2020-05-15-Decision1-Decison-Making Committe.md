@@ -8,7 +8,7 @@ subtitle: Administration
 
 
 The Foundation held the first  Decision-Making Committee Meeting on May 15th, 2020
-Meeting time: April 15th, 2020
+Meeting time: May 15th, 2020
 Theme of the meeting: Decision-Making Committee selection
 
 Conference resolutions: 
