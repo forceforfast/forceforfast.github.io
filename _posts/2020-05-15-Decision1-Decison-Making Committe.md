@@ -17,4 +17,4 @@ TheDecision-making committee is responsible for managing the FFF Foundation fund
 
 1st Community Council List: Rankings regardless, totaling 7 commissioners:
 
- Jade, Yiyi,Mary, Ark, Zero, Neil, BLKAGT BI, 
+ Jade, Yiyi, Mary, Ark, Zero, Neil, BLKAGT BI.
